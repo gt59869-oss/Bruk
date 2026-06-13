@@ -1,2 +1,0 @@
-# Bruk
-Nan
